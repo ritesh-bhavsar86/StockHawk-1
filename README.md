@@ -19,7 +19,7 @@ http://www.flaticon.com/authors/freepik
 
 ![alt tag](https://s9.postimg.org/buabdzcan/Whats_App_Image_2016_09_30_at_22_37_33.jpg)
 ![alt tag](https://s9.postimg.org/okejr2k8v/Whats_App_Image_2016_09_30_at_22_37_33_2.jpg)
-![alt tag](https://s9.postimg.org/buabdzcan/Whats_App_Image_2016_09_30_at_22_37_33_1.jpg)
+![alt tag](https://s9.postimg.org/ovw03u0ov/Whats_App_Image_2016_09_30_at_22_37_33_1.jpg)
 
 
 
